@@ -1,0 +1,1 @@
+# Snagit-Crack
